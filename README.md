@@ -1,1 +1,0 @@
-# Solidrhombus-program
